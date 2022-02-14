@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nishha
-- 👀 I’m interested in learning to code, anime and 
+- 👀 I’m interested in learning to code, anime and working out.
 - 🌱 I’m currently learning Python 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me IG - @__niishhaa, 
